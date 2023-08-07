@@ -5,6 +5,6 @@ jjlkkls- 👋 Hi, I’m @liljaostp
 - 📫 How to reach me ...scxzcaxc
 zxCasdsadqrwe
 <!---sasdadsadgfg
-liljaostp/liljaostp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+liljaostp/liljaostp is a ✨ special ✨ repaository because its `README.md` (this file) appears on your GitHub profile.ddasvc
 You can click the Pasdreview link to take a look at your changes.
 --->
