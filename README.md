@@ -1,7 +1,7 @@
 jjglkkls- 👋 Hi, I’m @liljaostp
 - 👀 I’m interested in ...
 - 🌱 I’m fdg ouyuyn ...
-- 📫gggHow to reach me ...scxzcaxcg
+- 📫gggHow to reach me ...scxzcadfgxcg
 zxCasdsadqrweghfg
 <!---sasdadsadgfgdas
 liljaostp/liljaostp is a ✨ special ✨ repaository because its `README.md` (this filefg) appears on your GitHub profile.dgdf
