@@ -1,7 +1,7 @@
 івjjglkkls- 👋 Hi, I’m @liljaostp
 - 👀 I’m interested in ...c
 - 🌱 I’m fdg ouyuyn ...аdssd
-- 📫gggHow to reach me ...sxcvcxzcadfgxcg
+- 📫gggHow to reach me ...sxcvcxzvcbcadfgxcg
 zxCasdsadqrweghfgxcvsadsaxcv
 <!---sasdadsadgfgdasячс
 liljaostp/liljaostp is a ✨ spdsecial ✨ repaository because its `README.md` (this filefg) appcxears on your GitHub profile.dgdf
