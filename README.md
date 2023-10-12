@@ -1,6 +1,6 @@
 івjjglkkls- 👋 Hi, I’m @liljaostp
 - 👀 I’m interested in ...casdcxzczxadcxvfvxc
-- 🌱 I’m fdg ouyuyn ...аdssdвфівсчяoo
+- 🌱 I’m fdg ouyuyn ...аdssdвфівсчяookjh
 - 📫gggHow to reach me cxzvzads...sxcvczczxczxczxczxcxzvcbcаіваіваіваadfgxcg
 zxCasdsadqrweghfgxcvsadsaxcvzcxczxczxc
 <!---sasdadsadgfgdasячс
