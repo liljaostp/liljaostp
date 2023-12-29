@@ -1,7 +1,7 @@
 івjjglkkls- 👋 Hi, I’m @liljaostpbmnbnbmn
 - 👀 I’m interested in ...casdcxzcz,mnxadcxvfvxc
-- 🌱 I’m fdg ouyuyn adasdаалроasdasddsfcxvx...аdssdzxcxzcвadsh,gadajhmvbdasdtkkkasdasdfdsadafkjdasdasdsfфівсчяookjhasdsad
-- 📫gggHow to reach me asdasdasdsadasdasdsadмаппрddasmbhj,hjgjkgvasdcxzczxjkgasdasdasasdcxzdhkgjasdasdafsdxcvsdasdczxzzxzxzxghkxcxzczzasdzasdasdasdsdsdvzads...sxcvcfsdfdszczxczxcвіфвіфвasdasdфіzxcxxasdasdфівфівchjkgzczxzxxzzvcbcаіваdssfіваіваsadsafgccadfgxcgфівфвіфadsdasd
+- 🌱 I’m fdg ouyuyn adasdаалроasdasddsfcxvx...jhv,аdssdzxcxzcвadsh,gadajhmvbdasdtkkkasdasdfdsadafkjdasdasdsfфівсчяookjhasdsad
+- 📫gggHow to reachdgf me asdasdasdsadasdasdsadмаппрddasmbhj,hjgjkgvasdcxzczxjkgasdasdasasdcxzdhkgjasdasdafsdxcvsdasdczxzzxzxzxghkxcxzczzasdzasdasdasdsdsdvzads...sxcvcfsdfdszczxczxcвіфвіфвasdasdфіzxcxxasdasdфівфівchjkgzczxzxxzzvcbcаіваdssfіваіваsadsafgccadfgxcgфівфвіфadsdasd
 zxCasdsadqrweghfgxcvsadsaxcvzcxczxczasdasdasxdaszxsasdscccxads
 <!---sasdadsadgfgdasячс
 liljaostp/liljaostp is a ✨ spdsecial ✨ repaository because its `README.md` (this filefg) appcxears on your GitHub profile.dgdf
