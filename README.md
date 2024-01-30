@@ -1,6 +1,6 @@
 івjjglkkls- 👋 Hi, I’m @liljaostpbmnbnbmn
 - 👀 I’m interested in ...casdcxzcz,mnxadcxvfvxc
-- 🌱 I’m fdg ouyuyn adasdаалроasdasddsfcxvx...jhv,аdssdzxcxzGKFKJcвadівфафвіфвsh,gadajhmvbdasdtkkkasdasdfsdfdsfsddsadafkjdasdaSADSADSAsівфівіфвіфdsіавпааіваfфівсчjfghhkjяookjhasdsadlhghfllhgkhjhvjb
+- 🌱 I’m fdg ouyuyn adasdаалроasdasddsfcxvx...jhv,аdssdzxcxghghGKFKJcвadівфафвіфвsh,gadajhmvbdasdtkkkasdasdfsdfdsfsddsadafkjdasdaSADSADSAsівфівіфвіфdsіавпааіваfфівсчjfghhkjяookjhasdsadlhghfllhgkhjhvjb
 - 📫gggHow to reachdgf me sdfsdfsdasfasdasdasdasdsadasdasdsadмаппрddasmbhj,hjgjkgvasdcxzczxjkgasdasdasasdcxzdhkgjasdasdafsdxcvsdasdczxzzxzxzxghkxcxzczzasdzasdasdasdsdsdvzads...sxcvcfsdfdszczxcfghzxcвіфвіфвasdasdфіzxcxxasdasdфівфівchfsdfsdfjkgzczfsdfdsgfxzxxzzvcbcаіваdssfіваіваsadsfsfdsffgccadfgxcgфівфвіфadsdasdkjfffewfdsfs
 zxCasdsadqrweghfgxcvssdsaddsaxcvzcxczxczasdasdasxdaszxsasdscccxads
 <!---sasdadsadgfgdasячс
