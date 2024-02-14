@@ -1,6 +1,6 @@
 івjjglkkls- 👋 Hi, I’m @lfdgdfgdfgdfgdfiljaostpbmnbnbmn
 - 👀 I’m interested in ...casdcxzcz,mnxadcxvfvxc
-- 🌱 I’m fdg ouyuyn cutgyznxfjcmjadasdаалроasdasddsfcxvx...jhv,аdssdzxsadasdcxghghGKFKJcвadівфафвіфвsh,gadajhmvbdasdtkkkasdasdfsdfdsfsddsadafkjdasdaSADSADSAsівфівіфвіфdsіавпааіваfфівсчjfghhkjяookjhasdsadlhghfllhgkhjhvjbqwdasdxvxcbcv
+- 🌱 I’m fdg ouyuyn cutgyznxfjcmjadasdаалроasdasddsfcxvxsadasdasd...jhv,аdssdzxsadasdcxghghGKFKJcвadівфафвіфвsh,gadajhmvbdasdtkkkasdasdfsdfdsfsddsadafkjdasdaSADSADSAsівфівіфвіфdsіавпааіваfфівсчjfghhkjяookjhasdsadlhghfllhgkhjhvjbqwdasdxvxcbcv
 - 📫gggHow to reachdgf me fhdgghgfsdfsdfsdasfasdasdasdasdsadasdasdsadмаппрddasmbhj,hjgjkgvasdcxzczxjkgasdasdasasdcxzdhkgjasdasdafsdxcvsdasdczxzzxzxzxghkxcxzczzasdzasdasdasdsdsdvzads...sxcvcfsdfdszczxcfghzxcвіфвіфвasdasdфіzxluhljcxxasdasdфівфівchfsdfsdfjkgzczfsdfdsgfxzxxzzvcbcаіваdssfіваіваsadsfsfdsffgccadfgxcgфівфвіфadsdasdkjfffewfdsfs
 zxCasdsadqrweghfgxcvssdsaddsaxcvzcxczxczasdasdasxdaszxsasdscccxads
 <!---sasdadsadgfgdasячс
